@@ -1,0 +1,1 @@
+EarnFromHomeUSA is a GitHub project designed to provide resources, tools, and guides that help people find legitimate ways to earn money from home — especially opportunities related to the USA. This repository includes curated information on remote jobs, online earning methods, platforms to explore, and tips for beginners who want to make income online safely and effectively.
